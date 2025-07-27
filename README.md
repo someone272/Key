@@ -1,2 +1,2 @@
 # Key
-Key for script
+Key for script: RobloxIsFun1234

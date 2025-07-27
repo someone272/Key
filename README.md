@@ -1,2 +1,2 @@
 # Key
-Key for script: RobloxIsFun1234
+Key for script: https://direct-link.net/1368065/WH48totMu2Hj
